@@ -1,0 +1,3 @@
+- Heya, I’m @AsterVrisk She/Her
+- I (normally) make music but I am currently learning how to code.
+- I'm ASTERvRISK#0788 on discord
